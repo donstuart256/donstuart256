@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @donstuart256
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning ..@aptechuganda.
+- 🌱 I’m currently learning .ISBAT UNIVERSITY CITY CAMPUS UGANDA.
 - 💞️ I’m looking to collaborate on ...big projects
 - 📫 How to reach me ...
 
